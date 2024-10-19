@@ -2,7 +2,7 @@
 
 ## 📋 About
 
-<a>Computer Science Student at UAkron</a>
+<a>CEO, GARAGEFLOW | LVD SOFTWARE GROUP LLC</a>
 
 <br />
 
