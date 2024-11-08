@@ -2,6 +2,6 @@
 
 ## 📋 About
 
-<a>CEO, GARAGEFLOW | LVD SOFTWARE GROUP LLC</a>
+<a>CEO, BAYCOMMANDER | LVD SOFTWARE GROUP LLC</a>
 
 <br />
