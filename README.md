@@ -2,6 +2,6 @@
 
 ## 📋 About
 
-<a>CEO, BAYCOMMANDER | LVD SOFTWARE GROUP LLC</a>
+<a>CEO, garageflo | LVD SOFTWARE GROUP LLC</a>
 
 <br />
